@@ -7,16 +7,16 @@ Impressum und Datenschutz für RenditenLounge
 
 Angaben gemäß § 5 DDG
 
-Valentin Huppertz
-Blumenstraße 4
-82399 Raisting
-Deutschland
+Valentin Huppertz  
+Blumenstraße 4  
+82399 Raisting  
+Deutschland    
 
-E-Mail: RenditenLounge@outlook.de
+E-Mail: RenditenLounge@outlook.de    
 
-Verantwortlich für den Inhalt nach § 18 Abs. 2 MStV
+Verantwortlich für den Inhalt nach § 18 Abs. 2 MStV    
 
-Valentin Huppertz
-Blumenstraße 4
-82399 Raisting
+Valentin Huppertz  
+Blumenstraße 4  
+82399 Raisting  
 Deutschland
