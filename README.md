@@ -51,6 +51,6 @@ Sie haben das Recht auf Auskunft über die zu Ihrer Person gespeicherten Daten s
 
 6. Änderungen dieser Datenschutzerklärung    
 
-Diese Datenschutzerklärung kann bei Bedarf angepasst werden.  
+Diese Datenschutzerklärung kann bei Bedarf angepasst werden.      
 
 © 2026 Valentin Huppertz. Alle Rechte vorbehalten.  
