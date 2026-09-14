@@ -7,6 +7,7 @@ Impressum und Datenschutz für RenditenLounge
 
 Angaben gemäß § 5 DDG
 
+VH Media  
 Valentin Huppertz  
 Blumenstraße 4  
 82399 Raisting  
